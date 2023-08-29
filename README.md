@@ -5,5 +5,5 @@ Sou aluna do Colegio Estadual Idalia Rocha
 Tenho 16 anos
 Nasci em Ivaiporã
 Gosto muito de animais
-Estou no primeiro ano B do enscino médio
+Estou no primeiro ano a do enscino médio
 Quero fazer faculdade de medicina veterinaria
